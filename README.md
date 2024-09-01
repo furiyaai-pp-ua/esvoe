@@ -1,2 +1,2 @@
 # esvoe
-https://esvoe.com/
+https://esvoe.com/furiyaai
