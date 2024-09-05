@@ -1,2 +1,3 @@
 # eSvoe
-https://esvoe.com/furiyaai
+https://esvoe.com/furiyaai<br>
+https://esvoe.video/@furiyaai
